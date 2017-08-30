@@ -1,0 +1,1 @@
+# Semacam konfigurasi Kopet 
